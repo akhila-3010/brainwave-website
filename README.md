@@ -1,1 +1,1 @@
-brain wavw website
+brain wave website
